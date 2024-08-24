@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jmd-g
+- 👋 Hi, I’m @jmdgg
 - 👀 I’m interested in seeing my code work
 - 🌱 I’m currently learning: anything lol!
 - 📫 How to reach me: messenger, discord
